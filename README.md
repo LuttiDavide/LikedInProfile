@@ -1,2 +1,2 @@
 # LikedInProfile
-www.linkedin.com/in/davide-lutti-5b6220300
+www.linkedin.com/in/davide-lutti
